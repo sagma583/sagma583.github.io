@@ -5,4 +5,4 @@
 * Github: [sagma583](https://github.com/sagma583)
 
 ## 記事
-* 未存在
+* [おすすめWeb小説](novels.md)
