@@ -21,7 +21,7 @@
 * [冒険家になろう！　スキルボードでダンジョン攻略](https://ncode.syosetu.com/n8618ef/)
 * [僕は僕の書いた小説を知らない](https://ncode.syosetu.com/n7248el/)
 * [無職転生　- 異世界行ったら本気だす -](https://ncode.syosetu.com/n9669bk/)
-* [元勇者の嫁ですが、なにか？](元勇者の嫁ですが、なにか？)
+* [元勇者の嫁ですが、なにか？](https://ncode.syosetu.com/n2741bq/)
 * [わたしの愛した彗星](https://ncode.syosetu.com/n1542hs/)
   ：[毒舌少女のために帰宅部辞めました](https://ncode.syosetu.com/n6599ds/)のリメイク。
 * [私の推しは悪役令嬢。](https://ncode.syosetu.com/n8792em/)
