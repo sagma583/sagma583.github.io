@@ -18,13 +18,15 @@
 * [転生王女と天才令嬢の魔法革命](https://ncode.syosetu.com/n8558fh/)
 * [逃走犯はオトコノコ！](https://ncode.syosetu.com/n5894ce/)
 * [日刊幼女みさきちゃん！](https://ncode.syosetu.com/n9395dd/)
+  ：続編→[みさきちゃん！　ＬＯ](https://ncode.syosetu.com/n6656dn/)
 * [八男って、それはないでしょう！](https://ncode.syosetu.com/n8802bq/)
 * [Vの者！～挨拶はこんばん山月！～](https://ncode.syosetu.com/n8386gv/)
 * [フシノカミ](https://ncode.syosetu.com/n3260fe/)
 * [冒険家になろう！　スキルボードでダンジョン攻略](https://ncode.syosetu.com/n8618ef/)
 * [僕は僕の書いた小説を知らない](https://ncode.syosetu.com/n7248el/)
 * [無職転生　- 異世界行ったら本気だす -](https://ncode.syosetu.com/n9669bk/)
-* [元勇者の嫁ですが、なにか？](https://ncode.syosetu.com/n2741bq/)
+* [元勇者の嫁ですが、なにか？](https://ncode.syosetu.com/s1171b/)
+  ：シリーズもの
 * [わたしの愛した彗星](https://ncode.syosetu.com/n1542hs/)
   ：[毒舌少女のために帰宅部辞めました](https://ncode.syosetu.com/n6599ds/)のリメイク。
 * [私の推しは悪役令嬢。](https://ncode.syosetu.com/n8792em/)
