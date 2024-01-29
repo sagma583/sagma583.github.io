@@ -6,3 +6,4 @@
 
 ## 記事
 * [おすすめWEB小説](novels.md)
+* [フィンランド語のアポストロフィ(2024-01-28)](finnish_apostrophe.md)
