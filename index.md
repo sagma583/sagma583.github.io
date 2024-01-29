@@ -5,5 +5,5 @@
 * Github: [sagma583](https://github.com/sagma583)
 
 ## 記事
-* [おすすめWEB小説(2023-12-05)](novels.md)
-* [フィンランド語のアポストロフィ(2024-01-28)](finnish_apostrophe.md)
+* [おすすめWEB小説 (2023-12-05)](novels.md)
+* [フィンランド語のアポストロフィ (2024-01-28)](finnish_apostrophe.md)
