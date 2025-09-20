@@ -1,4 +1,3 @@
-# sagma583.github.io
 狭熊 春城 (さぐま はるき)
 * Personal website <https://sagma583.github.io/>
 
